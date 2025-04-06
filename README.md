@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **test automation**
 
-- 📫 How to reach me **jayant.kandpal0819@gmail.com**
+- 📫 How to reach me **jayant.kandpal@outlook.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
